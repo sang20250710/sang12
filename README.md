@@ -10,4 +10,4 @@
 
 这些平台提供丰富的欧美性爱内容，涵盖多种题材，用户可以根据类型快速筛选。每个视频页面都包含详细的影片信息，包括时长、主演、清晰度等，支持高清视频播放，并根据网络条件自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sang20250710/sang12 ）</span>
